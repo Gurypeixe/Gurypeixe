@@ -17,7 +17,7 @@
 </br>
 
 ---
-<img align="left" height="220" src="https://media.discordapp.net/attachments/872906742206464096/970369258536194118/sp3_bglessx4.png"/>
+<img align="left" height="220" src="https://cdn.discordapp.com/attachments/995085963254562986/1006623843114295316/Fox_RP_SEM_FUNDO.png"/>
 
 Olá, muito prazer! Sou **Gury**, mas pode me chamar de **gury** ou **Guryzin**.
 
